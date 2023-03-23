@@ -1,4 +1,4 @@
-# Home made cheddar dip
+# Home made cheddar dip for tacos
 
 Ingredients:
 1. Bowl
